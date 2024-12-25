@@ -11,7 +11,7 @@ impactful projects."
 # Contact 📩
 Let's connect and explore potential collaborations:
 
-- Email: sarathi.ad21@bitsathy.ac.in
+- Email: sarathikumar900@gmail.com
 - LinkedIn:www.linkedin.com/in/sarathi-info
 - GitHub:https://github.com/Sarathi07
 
